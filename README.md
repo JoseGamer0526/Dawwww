@@ -1,1 +1,1 @@
-El que se muera es GAY
+Esto va a ser épico papus
